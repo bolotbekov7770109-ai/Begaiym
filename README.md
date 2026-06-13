@@ -1,0 +1,2 @@
+# Begaiym
+Kyz-uzatuu
